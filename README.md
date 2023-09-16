@@ -3,4 +3,4 @@ Challenge to make Google 1998
 
 
 
-![google98](https://github.com/eminsahin21/Google-98/assets/75633311/050e856e-2dc8-492c-8505-ea1462201bf7)
+![google98](https://github.com/eminsahin21/Google1998/assets/75633311/618a02d4-b992-4c5f-aa2f-3b9d9db58d1d)
